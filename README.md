@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kantor3
+- 👀 I’m interested in Shess
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate in the field of AI
+- 📫 How to reach me - kantor3@yandex.ru
